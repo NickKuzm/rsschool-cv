@@ -18,6 +18,6 @@
 
 **Work experience:** Have not work experience in the IT.
 
-**Education:** legal, now studying in Medical University and in Rolling Scopes School.
+**Education:** Now studying in Rolling Scopes School.
 
 **English level:** A2 Intermediate (My mom says i'm good at english).
